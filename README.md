@@ -1,6 +1,6 @@
-Hi 👋, 
+Hi there👋, I am Sweta!
 
-I am a Self-starter who is passionate about web development. 
+A Self-starter who is passionate about web development. 
 
 A constant learner who loves teaching.
 
